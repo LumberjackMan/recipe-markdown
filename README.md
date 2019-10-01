@@ -15,13 +15,13 @@ EGGS
 
 # Ingredients 
 
-Butter, half stick *57 cents*
+* Butter, half stick *57 cents*
 
-EGGS, seven *55 cents*
+* EGGS, seven *55 cents*
 
-Spices, to taste 
+* Spices, to taste 
 
-Bread slices, 4 *48 cents*
+* Bread slices, 4 *48 cents*
 
 
 
