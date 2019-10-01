@@ -25,6 +25,18 @@ EGGS
 
 # Directions
 
+**1.** Set the stove to medium and heat up the skillet
+
+**2.** Melt a Pad of butter in the pan
+
+**3.** Crack an EGG into the pan, you may want to cook multiple at the same time if you can
+
+**4.** Cook EGG(S) until white is just barely cooked, and yolk is just warm, add spices
+
+**5.** Repeat steps _2_ through _4_ until seven EGGS are cooked (Or more if disered)
+
+**6.** Toast four pieces of toast (or more if desired)
+
 
 
 
