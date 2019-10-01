@@ -33,7 +33,7 @@ EGGS
 
 **4.** Cook EGG(S) until white is just barely cooked, and yolk is just warm, add spices
 
-**5.** Repeat steps _2_ through _4_ until seven EGGS are cooked (Or more if disered)
+**5.** Repeat steps _2_ through _4_ until seven EGGS are cooked (Or more if desireds)
 
 **6.** Toast four pieces of toast (or more if desired)
 
@@ -41,7 +41,7 @@ EGGS
 
 # Notes
 
-You should definitly change the type of breadf you use, white bread is gross and unhealthy, but its all I had 
+You should definitly change the type of bread you use, white bread is gross and unhealthy, but its all I had 
 
 
 
