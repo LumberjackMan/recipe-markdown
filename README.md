@@ -37,6 +37,12 @@ EGGS
 
 **6.** Toast four pieces of toast (or more if desired)
 
+**7.** Serve
+
+# Notes
+
+You should definitly change the type of breadf you use, white bread is gross and unhealthy, but its all I had 
+
 
 
 
