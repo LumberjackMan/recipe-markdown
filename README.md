@@ -11,14 +11,18 @@ EGGS
 
 **Cool Time:** None. Eat while scalding.
 
+**Price:** Approximately $1.50
+
 # Ingredients 
 
-EGGS, seven
+EGGS, seven 55 cents
 
-Butter, half stick
+Butter, half stick 57 cents
 
-Bread slices, 4
+Bread slices, 4 48 cents
 
 Spices, to taste
+
+
 
 
